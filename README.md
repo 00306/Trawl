@@ -1,3 +1,12 @@
+### Prize
+
+https://github.com/00306/Trawl/assets/114010099/65dda797-45dc-4afe-8117-80d56105c83f
+
+
+<br>
+
+<br>
+
 
 ### Demo Video
 
@@ -15,14 +24,8 @@ https://github.com/00306/Trawl/assets/114010099/2f0acb63-5062-43f1-99da-97abd1ae
 
 <br>
 
-<br>
-
-### Prize
-
-https://github.com/00306/Trawl/assets/114010099/65dda797-45dc-4afe-8117-80d56105c83f
 
 
 
-<br>
 
 
